@@ -1,4 +1,4 @@
-## Hi there 
+## Hi there 🪽
 I'm Zoé,
 
 I'm currently in Vwo 5 and i take informatics at school
